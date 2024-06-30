@@ -21,3 +21,8 @@ English (Intermediate)
 - Self-assured — I'm not afraid to ask questions
 - Punctual - I have excellent time management
 ******************************
+#  Education:
+
+Taras Shevchenko National University of Kyiv/Kyiv
+
+Speciality:Law
